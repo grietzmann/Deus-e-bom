@@ -1,1 +1,1 @@
-2 coríntios 15 17
+2 coríntios 5:17
