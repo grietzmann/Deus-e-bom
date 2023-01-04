@@ -1,1 +1,1 @@
-# Deus-e-bom
+2 coríntios 15 17
